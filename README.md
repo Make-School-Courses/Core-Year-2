@@ -16,5 +16,5 @@ Students team up again to work on an ambitious project of their choice. This tim
 * **CORE 9 (Term 4): Ramp Camp & Professional Success Skills** -
 When you start at a new dev job, there is a time between when you join and when you can make valuable contributions to the code base – this is called “Ramping”. Really great companies will put new devs through a Ramp Camp where you learn the systems and the code base of their company. In this term we’ll spend our time familiarizing ourselves with the architectures and common tools that large code bases use to operate. This includes topics such as: Continuous integration with Travis CI, Code Reviews, server admin, and Docker (conceptually understand containers).
 
-* **CORE 10 (Term 5): Job Search & Team Success Skills** -
+* **CORE 10 (Term 5): Job Search** -
 This is what you’ve been working toward for almost two years! Now it’s time to focus on your job hunt and spend extra time to search, apply, and practice interviewing and solving problems for technical interviews.
