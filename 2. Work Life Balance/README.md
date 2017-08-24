@@ -1,159 +1,36 @@
 # Introduction: Habit Formation, 10% better
 
-
 ### Intro (optional)
 
-### Competencies & Objectives
-* 
-* 
-* 
+Graduates from the Product College are not just good at work, they are good at work and life, and work-life balance. In this term, we will be focusing our learnings on how to manage one’s wellness, and explore and discuss what habits make for a healthy and fulfilling life.
 
-### Slides or Teaching Points (//you might put this content on the wiki! And link to it)
+The course is a combination of small group discussion and best practices. Small groups of 4-5 students will reflect on what habits they want to adopt, and their methodologies. Students can trouble shoot blockers and offer suggestions for more effective strategies. These function as a "support group" of peers to make change in their life.
 
-### Resources (Note: might put on the wiki instead!)
+Instructors will also lecture on the science-based best practices for diet, exercise, sleep & relaxation, and relationships. These lectures will supplement the student's thinking on how to manage their own work life balance.
 
-### Baseline Challenges
-* 
-*
+Class will culminate with each student giving a presentations on how they've changed, what they've learned and their strategy for what new habits they may want to adopt in the coming year.
 
-### Stretch Challenges (inclusion optional)
-* 
-*
-
-### Additional Learning (inclusion optional)
-* 
-*
-*
-
-# Work/Life Balance: Diet
-
-
-### Intro (optional)
 
 ### Competencies & Objectives
-* 
-* 
-* 
-
-### Slides or Teaching Points (//you might put this content on the wiki! And link to it)
-
-### Resources (Note: might put on the wiki instead!)
-
-### Baseline Challenges
-* 
-*
-
-### Stretch Challenges (inclusion optional)
-* 
-*
-
-### Additional Learning (inclusion optional)
-* 
-*
-*
-
-# Work/Life Balance: Relaxation & Sleep
-
-### Intro (optional)
-
-### Competencies & Objectives
-* 
-* 
-* 
-
-### Slides or Teaching Points (//you might put this content on the wiki! And link to it)
-
-### Resources (Note: might put on the wiki instead!)
+* Identify and prioritize their wellness development
+* Adopt new habits through habit coupling and the tiny habit method
+* Identify and shift the triggers of their bad habits to good habits
+* Plan your diet and hydration effectively
+* Triage poor eating habits
+* Use relaxation techniques such as abdominal breathing, visualization, meditation, yoga and calming music
+* Manage your calendar to get 8 hours of sleep a night
+* Do exercise safely at your current fitness level
+* Keep and manage healthy relationships
+* Resolve conflicts with friends, family and coworkers
+* Actively listen and recreate points in conversations
 
 ### Baseline Challenges
-* 
-*
+* What new habit do you want to start this week? What might be difficult about starting, how did it feel? What were your blockers, what new strategy will you try to reinforce last week’s habit?
 
-### Stretch Challenges (inclusion optional)
-* 
-*
-
-### Additional Learning (inclusion optional)
-* 
-*
-*
-
-# Work/Life Balance: Exercise
-
-
-### Intro (optional)
-
-### Competencies & Objectives
-* 
-* 
-* 
-
-### Slides or Teaching Points (//you might put this content on the wiki! And link to it)
-
-### Resources (Note: might put on the wiki instead!)
-
-### Baseline Challenges
-* 
-*
-
-### Stretch Challenges (inclusion optional)
-* 
-*
-
-### Additional Learning (inclusion optional)
-* 
-*
-*
-
-# Work/Life Balance: Relationships
-
-### Intro (optional)
-
-### Competencies & Objectives
-* 
-* 
-* 
-
-### Slides or Teaching Points (//you might put this content on the wiki! And link to it)
-
-### Resources (Note: might put on the wiki instead!)
-
-### Baseline Challenges
-* 
-*
-
-### Stretch Challenges (inclusion optional)
-* 
-*
-
-### Additional Learning (inclusion optional)
-* 
-*
-*
-
-# Work/Life Balance: Presentations
-
-
-### Intro (optional)
-
-### Competencies & Objectives
-* 
-* 
-* 
-
-### Slides or Teaching Points (//you might put this content on the wiki! And link to it)
-
-### Resources (Note: might put on the wiki instead!)
-
-### Baseline Challenges
-* 
-*
-
-### Stretch Challenges (inclusion optional)
-* 
-*
-
-### Additional Learning (inclusion optional)
-* 
-*
-*
+### Lessons
+* Keys to Habit Formation
+* Diet
+* Sleep and Relaxation
+* Relationships 
+* Presentations: How I've changed!
+* Exercise
