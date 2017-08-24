@@ -1,4 +1,4 @@
-# Introduction: Habit Formation, 10% better
+# Work Life Balance
 
 ### Intro (optional)
 
@@ -28,7 +28,7 @@ Class will culminate with each student giving a presentations on how they've cha
 * What new habit do you want to start this week? What might be difficult about starting, how did it feel? What were your blockers, what new strategy will you try to reinforce last week’s habit?
 
 ### Lessons
-* Class 1: Keys to Habit Formation
+* Class 1: Keys to Habit Formation: 10% Better
 * Class 2: Diet
 * Class 3: Sleep and Relaxation
 * Class 4: Relationships 
