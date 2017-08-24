@@ -28,9 +28,9 @@ Class will culminate with each student giving a presentations on how they've cha
 * What new habit do you want to start this week? What might be difficult about starting, how did it feel? What were your blockers, what new strategy will you try to reinforce last week’s habit?
 
 ### Lessons
-* Keys to Habit Formation
-* Diet
-* Sleep and Relaxation
-* Relationships 
-* Presentations: How I've changed!
-* Exercise
+* Class 1: Keys to Habit Formation
+* Class 2: Diet
+* Class 3: Sleep and Relaxation
+* Class 4: Relationships 
+* Class 5: Presentations: How I've changed!
+* Class 6: Exercise
