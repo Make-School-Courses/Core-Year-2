@@ -24,10 +24,6 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 * Reach out for help effectively
 * Identify highest value target mentors
 
-### Slides or Teaching Points (//you might put this content on the wiki! And link to it)
-
-### Resources (Note: might put on the wiki instead!)
-
 ### Baseline Challenges
 * Get coffee with 2-3 industry professionals
 * Get 10 business cards from an industry meet up of your choice
@@ -43,3 +39,5 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 * Class 7: Role play writing effective email scripts pt 2
 
 # UI/UX Design
+
+^ Eliel and Mitchell Add Here
