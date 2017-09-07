@@ -32,5 +32,5 @@ Class will culminate with each student giving a presentations on how they've cha
 * Class 2: Diet
 * Class 3: Sleep and Relaxation
 * Class 4: Relationships 
-* Class 5: Presentations: How I've changed!
-* Class 6: Exercise
+* Class 5: Exercise
+* Class 6: Presentations: How I've changed!
