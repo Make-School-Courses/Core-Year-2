@@ -28,9 +28,9 @@ Class will culminate with each student giving a presentations on how they've cha
 * What new habit do you want to start this week? What might be difficult about starting, how did it feel? What were your blockers, what new strategy will you try to reinforce last week’s habit?
 
 ### Lessons
-* Class 1: Keys to Habit Formation: 10% Better
-* Class 2: Diet
-* Class 3: Sleep and Relaxation
-* Class 4: Relationships 
-* Class 5: Exercise
+* Class 1: [Keys to Habit Formation: 10% Better](https://docs.google.com/presentation/d/1TRzS_by9Ggg3oTSf8mo0xxNRSLpCZrUWOtWcAr89YA4/edit#slide=id.p)
+* Class 2: [Exercise](https://docs.google.com/presentation/d/1MlVYGinP6qkHwKFhN6TBNEi972qXfAWFkVpe8NwH4LQ/edit)
+* Class 3: [Sleep and Relaxation](https://docs.google.com/a/makeschool.com/presentation/d/10q__LTWLrQSCCttvK8jTdgiM7-JMCo6rsOcoddAC3RQ/edit?usp=drive_web)
+* Class 4: Diet
+* Class 5: [Relationships](https://docs.google.com/a/makeschool.com/presentation/d/1Cer8URq1IWfp0Obuyp7ox4FImhoJV2hkSYg1MNnWZ_k/edit?usp=drive_web)
 * Class 6: Presentations: How I've changed!
