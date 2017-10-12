@@ -31,6 +31,6 @@ Class will culminate with each student giving a presentations on how they've cha
 * Class 1: [Keys to Habit Formation: 10% Better](https://docs.google.com/presentation/d/1TRzS_by9Ggg3oTSf8mo0xxNRSLpCZrUWOtWcAr89YA4/edit#slide=id.p)
 * Class 2: [Exercise](https://docs.google.com/presentation/d/1MlVYGinP6qkHwKFhN6TBNEi972qXfAWFkVpe8NwH4LQ/edit)
 * Class 3: [Sleep and Relaxation](https://docs.google.com/a/makeschool.com/presentation/d/10q__LTWLrQSCCttvK8jTdgiM7-JMCo6rsOcoddAC3RQ/edit?usp=drive_web)
-* Class 4: Diet
+* Class 4: [Diet](https://docs.google.com/presentation/d/1B-ndEUghpgaYZpdyKxJW3hag4hCzp99vHSih75eqzzw/edit?ts=59dff4e4#slide=id.g26db2de657_0_96)
 * Class 5: [Relationships](https://docs.google.com/a/makeschool.com/presentation/d/1Cer8URq1IWfp0Obuyp7ox4FImhoJV2hkSYg1MNnWZ_k/edit?usp=drive_web)
 * Class 6: Presentations: How I've changed!
