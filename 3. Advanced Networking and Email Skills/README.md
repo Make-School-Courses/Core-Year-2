@@ -2,7 +2,7 @@
 
 Networking is an art and a technology. We’ll take our networking skills to the next level by reading and discussing the business classics Never Eat Alone and How to Win Friends and Influence People while roleplaying networking experiences and getting feedback from real mentors and networking events in the field. Bring your business cards and your fancy boots.
 
-You'll also get hands on experience with advanced communication challenges. We'll roleplay various communication scenarios including: followup or thank you emais, responding to aggressive messages or apologize for a mistake, geting an unresponsive person to respond, reviving an old contact, declining pointless meetings, reducing back and forth, negotiating, delegating tasks to team, asking to meet with investor, cold emailing a stranger for advice.
+You'll also get hands on experience with advanced communication challenges. We'll roleplay various communication scenarios including: followup or thank you emails, responding to aggressive messages or apologize for a mistake, geting an unresponsive person to respond, reviving an old contact, declining pointless meetings, reducing back and forth, negotiating, delegating tasks to team, asking to meet with investor, cold emailing a stranger for advice.
 
 This class cultivates ability to grow your personal network. You’ll have more exposure - and structured help - to connect with Make School’s network of industry professionals, partner companies. These individuals can become mentors, potential employers, cofounders, friends and partners.
 
