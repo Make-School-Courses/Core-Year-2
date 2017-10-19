@@ -30,9 +30,9 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 
 ### Lessons
 * Class 1: Advanced Networking 101
-* Class 2: Networking Simulation
-* Class 3: Learning from Mentors Vs. By Yourslef
-* Class 4: Mentor-Mentee Conversations
+* Class 2: Rejection Therapy
+* Class 3: Networking Simulation
+* Class 4: Networking Field Trip
 * Class 5: Finding Mentors in Industry
-* Class 6: Role play writing effective email scripts pt 1
-* Class 7: Role play writing effective email scripts pt 2
+* Class 6: Keeping Relationships Fresh
+* Class 7: Flex Day
