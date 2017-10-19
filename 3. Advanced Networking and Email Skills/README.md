@@ -36,7 +36,3 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 * Class 5: Finding Mentors in Industry
 * Class 6: Role play writing effective email scripts pt 1
 * Class 7: Role play writing effective email scripts pt 2
-
-# UI/UX Design
-
-^ Eliel and Mitchell Add Here
