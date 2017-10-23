@@ -29,8 +29,8 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 1. Get coffee with 2-3 industry professionals
 1. Get 10 business cards from an industry meet up of your choice
 1. Create skits on proper and inproper behavior at networking events
-1. Interview an entreprenuer and write a two page summary on what you learned
-1. Create and finish a [term-2 partner project](https://github.com/Product-College-Labs/term-2-partner-project) to present at the December Open House.
+1. Entrepreneur Interview (Individual) - you will interview a successful entreprenuer and prepare a ~2 page report on what factors made them successful. This is a great chance for you to practice your networking and learning skills while accomplishing and assignment.
+1. Facilitate a book discussion on your assigned day. Facilitation involves 1) thinking up 3-4 questions that: relate book content to participant's experiences, speak to nuance and paradoxes of the book material, and dig into how to take the book's principles into practice; 2) Submit the questions to Dan at least and hour before class; 3) facilitate the discussion to ensure full participation, active engagement, and that diverse and contrasting views are voiced.
 
 ### Stretch Challenges
 1. Connect with the head of a meetup group and ask them who would be a good fit for you to connect with given your skills
@@ -46,24 +46,25 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 
 **Class 2, 10/30: Rejection Therapy** <br />
 -- Pre Class: Read Section 1 of Never Eat Alone, pg 1 - 61, PDF is linked above<br />
--- During Class: Discuss the minset sifts of an effective Mentee, practice rejection therapy, find an event to attend <br />
+-- During Class: Tassos leads discussion on the minset sifts of an effective Mentee from NEA, practice rejection therapy, find an event to attend, pick mentors off of industry list <br />
 -- HW: Read Section 2 of Never Eat Alone and Part 2, chapter 4 of How to Win Friends and Influence People - both PDFs are linked above  <br /> <br />
 
 **Class 3, 11/6: Networking Simulation** <br />
 -- Pre Class: Read Section 2 of Never Eat Alone and Part 2 pgs 67-155, Part 2 chapter 4 of How to Win Friends and Influence People - both PDFs are linked above<br />
--- During Class: Create roleplay skits on the do's and don't do's of various networking scenarios <br />
--- HW: <br /> <br />
+-- During Class: Kadeem leads discussion on the SKillset of being a mentee from NEA, Create roleplay skits on the do's and don't do's of various networking scenarios <br />
+-- HW: Find 2-3 prospective mentors in your industry and/or role of interest <br />
 
-**Class 4, 11/8: Networking Field Trip** <br />
--- Pre Class: Read Section 3 of Never Eat Alone 161-190, PDF is linked above<br />
--- During Class: N/A ... will go to a networking event all together <br />
--- HW: Send follow-up emails to every contact you made & connect with them on Linkedin <br /> <br />
 
-**Class 5, 11/13: Finding Mentors in Industry** <br />
--- Pre Class: Find 2-3 prospective mentors in your industry and/or role of interest; Read Section 4 pgs 203-291 of Never Eat Alone, PDF is linked above<br />
+**Class 4, 11/8: Finding Mentors in Industry** <br />
+-- Pre Class: Find 2-3 prospective mentors in your industry and/or role of interest <br />
 -- During Class: Review Network theory and strategies to connect with specific individuals, pair program reach outs <br />
--- After Class: <br />
--- HW: Find 3 old contacts you'd like to revive <br /> <br />
+-- HW: Read Section 3 of Never Eat Alone 161-190, PDF is linked above
+
+**Class 5, 11/13: Networking Field Trip** <br />
+<br />
+-- During Class: N/A ... will go to a networking event all together <br />
+-- HW: Send follow-up emails to every contact you made & connect with them on Linkedin; Read Section 3 of Never Eat Alone 161-190, PDF is linked above <br /> <br />
+-- HW: Read Section 4 pgs 203-291 of Never Eat Alone, PDF is linked above, Find 3 old contacts you'd like to revive  <br /> <br />
 
 **Class 6, 11/15: Keeping Relationships Fresh** <br />
 -- Pre Class: Find three contacts that you'd like to revive <br />
