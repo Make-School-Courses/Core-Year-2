@@ -20,10 +20,10 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 * Be an effective listener
 * Strategize what networking events are most useful for your time
 * Ask useful questions in a mentorship conversation
-* Send thank you notes to mentors
+* Send effective thank you notes to mentors
 * Prioritize and manage contacts in your network
-* Reach out for help effectively
-* Identify highest value target mentors
+* Identify highest value target mentors for your learning goals
+* Keep contacts fresh for years after you first meet
 
 ### Baseline Challenges
 * Get coffee with 2-3 industry professionals
