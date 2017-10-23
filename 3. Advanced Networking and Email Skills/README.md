@@ -47,39 +47,36 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 **Class 2, 10/30: Rejection Therapy** <br />
 -- Pre Class: Read Section 1 of Never Eat Alone, pg 1 - 61, PDF is linked above<br />
 -- During Class: Tassos leads discussion on the minset sifts of an effective Mentee from NEA, practice rejection therapy, find an event to attend, pick mentors off of industry list <br />
--- HW: Read Section 2 of Never Eat Alone and Part 2, chapter 4 of How to Win Friends and Influence People - both PDFs are linked above  <br /> <br />
+-- HW: Read Section 2 of Never Eat Alone and Part 2 chapter 4 of How to Win Friends and Influence People - both PDFs are linked above  <br /> <br />
 
 **Class 3, 11/6: Networking Simulation** <br />
 -- Pre Class: Read Section 2 of Never Eat Alone and Part 2 pgs 67-155, Part 2 chapter 4 of How to Win Friends and Influence People - both PDFs are linked above<br />
--- During Class: Kadeem leads discussion on the SKillset of being a mentee from NEA, Create roleplay skits on the do's and don't do's of various networking scenarios <br />
--- HW: Find 2-3 prospective mentors in your industry and/or role of interest <br />
-
+-- During Class: Kadeem leads discussion on the SKillset of Being a Mentee from NEA, Create roleplay skits on the do's and don't do's of various networking scenarios <br />
+-- HW: Find 2-3 prospective mentors in your industry and/or role of interest; Read Section 3 of Never Eat Alone 161-190, PDF is linked above <br />
 
 **Class 4, 11/8: Finding Mentors in Industry** <br />
--- Pre Class: Find 2-3 prospective mentors in your industry and/or role of interest <br />
--- During Class: Review Network theory and strategies to connect with specific individuals, pair program reach outs <br />
--- HW: Read Section 3 of Never Eat Alone 161-190, PDF is linked above
+-- Pre Class: Find 2-3 prospective mentors in your industry and/or role of interest; Read Section 3 of Never Eat Alone 161-190, PDF is linked above <br />
+-- During Class: Fiona lead discussion on Section 3 of NEA, Review Network theory and strategies to connect with specific individuals, pair program reach outs <br />
+-- HW:  Read Section 4 of Never Eat Alone 203-299 <br /> <br />
 
 **Class 5, 11/13: Networking Field Trip** <br />
-<br />
 -- During Class: N/A ... will go to a networking event all together <br />
--- HW: Send follow-up emails to every contact you made & connect with them on Linkedin; Read Section 3 of Never Eat Alone 161-190, PDF is linked above <br /> <br />
--- HW: Read Section 4 pgs 203-291 of Never Eat Alone, PDF is linked above, Find 3 old contacts you'd like to revive  <br /> <br />
+-- HW: Send follow-up emails to every contact you made & connect with them on Linkedin; Read Section 4 of Never Eat Alone 203-299 if you haven't already <br /> 
+-- HW:  Find 3 old contacts you'd like to revive  <br /> <br />
 
 **Class 6, 11/15: Keeping Relationships Fresh** <br />
--- Pre Class: Find three contacts that you'd like to revive <br />
+-- Pre Class: Read Section 4 of Never Eat Alone 203-299, PDF is linked above, Find 3 old contacts you'd like to revive  <br />
 -- During Class: Understand what creates trust with contacts and strategies to revive connections, actually reach out to people <br />
--- After Class: <br />
--- HW: Read part of 50 Proven Email Scripts, PDF is linked above <br /> <br />
+-- HW: Read part of 50 Proven Email Scripts (TBD), PDF is linked above <br /> <br />
 
 **Class 7, 11/29: Flex Day** <br />
--- Pre Class: Read part of 50 Proven Email Scripts, PDF is linked above<br />
--- During Class: <br />
--- After Class: <br />
--- HW: Read part of 50 Proven Email Scripts, PDF is linked above <br /> <br />
+-- Pre Class: Read part of 50 Proven Email Scripts (TBD), PDF is linked above<br />
+-- During Class: TBD <br />
+-- After Class: TBD <br />
+-- HW: Read part of 50 Proven Email Scripts (TBD), PDF is linked above <br /> <br />
 
 **Class 8, 12/6: Advanced Emails** <br />
 -- Pre Class: Read part of 50 Proven Email Scripts, PDF is linked above<br />
--- During Class: An activitie to roleplay and get live feedback on difficult communicatio scenarios <br />
+-- During Class: An activity to roleplay and get live feedback on difficult communication scenarios <br />
 -- After Class: <br />
 -- HW: <br /> <br />
