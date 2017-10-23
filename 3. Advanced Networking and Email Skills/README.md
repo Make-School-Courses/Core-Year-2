@@ -69,7 +69,7 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 
 **Class 6, 11/15: Keeping Relationships Fresh** <br />
 -- Pre Class: Read Section 4 of Never Eat Alone 203-299, PDF is linked above, Find 3 old contacts you'd like to revive  <br />
--- During Class: Understand what creates trust with contacts and strategies to revive connections, actually reach out to people <br />
+-- During Class: Casey lead discussion on Sectin 4 of NEA. Understand what creates trust with contacts and strategies to revive connections, actually reach out to people <br />
 -- HW: Read part of 50 Proven Email Scripts (TBD), PDF is linked above <br /> <br />
 
 **Class 7, 11/29: Flex Day** <br />
