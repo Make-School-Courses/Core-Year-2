@@ -30,7 +30,7 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 * Create skits on proper and inproper behavior at networking events
 
 ### Lessons
-Class 1: Advanced Networking 101
+Class 1: Advanced Networking 101 <br />
 -- Pre Class: 
 -- During Class:
 -- After Class:
