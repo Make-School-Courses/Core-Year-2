@@ -9,7 +9,7 @@ This class cultivates ability to grow your personal network. You’ll have more 
 By the end, you’ll have the interpersonal skills to be comfortable and confident in your next job.
 
 ### Book
-* [http://www.r-5.org/files/books/ethology/corporate/behaviour/Keith_Ferrazzi_Tahl_Raz-Never_Eat_Alone-EN.pdf](Never Eat Alone) by Kieth Ferazzi
+* [Never Eat Alone](http://www.r-5.org/files/books/ethology/corporate/behaviour/Keith_Ferrazzi_Tahl_Raz-Never_Eat_Alone-EN.pdf) by Kieth Ferazzi
 
 ### Competencies & Objectives
 * Manage networking events sitautions: ask for business cards, entering and leaving conversations, setting up a future meeting
