@@ -30,15 +30,42 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 * Create skits on proper and inproper behavior at networking events
 
 ### Lessons
-Class 1: Advanced Networking 101 <br />
--- Pre Class: 
--- During Class:
--- After Class:
--- HW
+Class 1, 10/23: Advanced Networking 101 <br />
+-- Pre Class: Find the LinkedIns for 3 people you’d like to get coffee/advice from & write a draft template email inviting them to coffee <br />
+-- During Class: Declare your current approach to networking and mentorship, explain the distinct benefits of mentorship<br />
+-- After Class: Read Section 1 of Never Eat Alone, pg 1 - 61, PDF is linked above <br />
+-- HW: <br /> <br />
 
 * Class 2: Rejection Therapy
-* Class 3: Networking Simulation
+-- Pre Class: Read Section 1 of Never Eat Alone, pg 1 - 61, PDF is linked above<br />
+-- During Class: Discuss the minset sifts of an effective Mentee, practice rejection therapy <br />
+-- HW: Read Section 2 of Never Eat Alone and Part 2, chapter 4 of How to Win Friends and Influence People - both PDFs are linked above  <br /> <br />
+
+* Class 3: Networking Simulation <br />
+-- Pre Class: Read Part 3 of Never Eat Alone, PDF is linked above<br />
+-- During Class: <br />
+-- HW: <br /> <br />
+
 * Class 4: Networking Field Trip
+-- Pre Class: Read Part 1 of Never Eat Alone, PDF is linked above<br />
+-- During Class: <br />
+-- After Class: <br />
+-- HW: <br /> <br />
+
 * Class 5: Finding Mentors in Industry
+-- Pre Class: Read Part 1 of Never Eat Alone, PDF is linked above<br />
+-- During Class: <br />
+-- After Class: <br />
+-- HW: <br /> <br />
+
 * Class 6: Keeping Relationships Fresh
+-- Pre Class: Read Part 1 of Never Eat Alone, PDF is linked above<br />
+-- During Class: <br />
+-- After Class: <br />
+-- HW: <br /> <br />
+
 * Class 7: Flex Day
+-- Pre Class: Read Part 1 of Never Eat Alone, PDF is linked above<br />
+-- During Class: <br />
+-- After Class: <br />
+-- HW: <br /> <br />
