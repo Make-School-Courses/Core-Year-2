@@ -26,11 +26,11 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 * Keep contacts fresh for years after you first meet
 
 ### Baseline Challenges
-* Get coffee with 2-3 industry professionals
-* Get 10 business cards from an industry meet up of your choice
-* Create skits on proper and inproper behavior at networking events
-* Interview an entreprenuer and write a two page summary on what you learned
-* Create and finish a [term-2 partner project](https://github.com/Product-College-Labs/term-2-partner-project) to present at the December Open House.
+1. Get coffee with 2-3 industry professionals
+1. Get 10 business cards from an industry meet up of your choice
+1. Create skits on proper and inproper behavior at networking events
+1. Interview an entreprenuer and write a two page summary on what you learned
+1. Create and finish a [term-2 partner project](https://github.com/Product-College-Labs/term-2-partner-project) to present at the December Open House.
 
 ### Stretch Challenges
 * Connect with the head of a meetup group and ask them who would be a good fit for you to connect with given your skills
