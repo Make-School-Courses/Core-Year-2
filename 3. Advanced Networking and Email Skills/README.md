@@ -44,15 +44,18 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 -- After Class: Read Section 1 of Never Eat Alone, pg 1 - 61, PDF is linked above <br />
 -- HW: Interview an Entreprenuer<br /> <br />
 
+
 **Class 2, 10/30: Rejection Therapy** <br />
 -- Pre Class: Read Section 1 of Never Eat Alone, pg 1 - 61, PDF is linked above<br />
 -- During Class: Tassos leads discussion on the minset sifts of an effective Mentee from NEA, practice rejection therapy, find an event to attend, pick mentors off of industry list <br />
 -- HW: Read Section 2 of Never Eat Alone and Part 2 chapter 4 of How to Win Friends and Influence People - both PDFs are linked above  <br /> <br />
 
+
 **Class 3, 11/6: Networking Simulation** <br />
 -- Pre Class: Read Section 2 of Never Eat Alone and Part 2 pgs 67-155, Part 2 chapter 4 of How to Win Friends and Influence People - both PDFs are linked above<br />
 -- During Class: Kadeem leads discussion on the SKillset of Being a Mentee from NEA, Create roleplay skits on the do's and don't do's of various networking scenarios <br />
 -- HW: Find 2-3 prospective mentors in your industry and/or role of interest; Read Section 3 of Never Eat Alone 161-190, PDF is linked above <br />
+
 
 **Class 4, 11/8: Finding Mentors in Industry** <br />
 -- Pre Class: Find 2-3 prospective mentors in your industry and/or role of interest; Read Section 3 of Never Eat Alone 161-190, PDF is linked above <br />
