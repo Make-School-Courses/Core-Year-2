@@ -29,8 +29,8 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 1. Get coffee with 2-3 industry professionals
 1. Get 10 business cards from an industry meet up of your choice
 1. Create skits on proper and inproper behavior at networking events
-1. Entrepreneur Interview (Individual) - you will interview a successful entreprenuer and prepare a ~2 page report on what factors made them successful. This is a great chance for you to practice your networking and learning skills while accomplishing and assignment.
-1. Facilitate a book discussion on your assigned day. Facilitation involves 1) thinking up 3-4 questions that: relate book content to participant's experiences, speak to nuance and paradoxes of the book material, and dig into how to take the book's principles into practice; 2) Submit the questions to Dan at least and hour before class; 3) facilitate the discussion to ensure full participation, active engagement, and that diverse and contrasting views are voiced.
+1. Entrepreneur Interview - you will interview a successful entreprenuer and prepare a ~2 page report on what factors made them successful. This is a great chance for you to practice your networking and learning skills while accomplishing the assignment.
+1. Facilitate a book discussion on your assigned day. Facilitation involves three components, 1) thinking up 3-4 questions that: relate book content to participant's experiences, speak to the nuance and paradoxes of the book material, and dig into how to take the book's principles into practice; 2) Submit the questions to Dan at least and hour before class; 3) facilitate the discussion to ensure full participation, active engagement, and that diverse and contrasting views are voiced.
 
 ### Stretch Challenges
 1. Connect with the head of a meetup group and ask them who would be a good fit for you to connect with given your skills
