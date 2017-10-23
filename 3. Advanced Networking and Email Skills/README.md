@@ -14,15 +14,15 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 * [50 Proven Email Scripts PDF](https://drive.google.com/file/d/0B5OY6XRGtYXpSFl4WmR0X09CMmc/view?usp=sharing) by Ramit Sethi
 
 ### Competencies & Objectives
+* Identify highest value target mentors for your learning goals
+* Hack to find contact info of (almost) anyone
 * Manage networking events sitautions: ask for business cards, entering and leaving conversations, setting up a future meeting
-* Resolve conflicts with teammates
 * Diferentiate what learning should be done solo vs. through a mentorship conversation
-* Be an effective listener
+* Be an effective listener and follow-up-er.
 * Strategize what networking events are most useful for your time
 * Ask useful questions in a mentorship conversation
 * Send effective thank you notes to mentors
 * Prioritize and manage contacts in your network
-* Identify highest value target mentors for your learning goals
 * Keep contacts fresh for years after you first meet
 
 ### Baseline Challenges
