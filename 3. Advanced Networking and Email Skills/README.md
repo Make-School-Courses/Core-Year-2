@@ -42,7 +42,7 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 -- Pre Class: Find the LinkedIns for 3 people you’d like to get coffee/advice from & write a draft template email inviting them to coffee <br />
 -- During Class: Declare your current approach to networking and mentorship, explain the distinct benefits of mentorship to both the mentor and mentee as well as the unique learning benefits of mentorship <br />
 -- After Class: Read Section 1 of Never Eat Alone, pg 1 - 61, PDF is linked above <br />
--- HW: Interview an Entreprenuer<br /> <br />
+-- HW: <br /> <br />
 
 
 **Class 2, 10/30: Rejection Therapy** <br />
@@ -63,9 +63,9 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 -- HW: Read Section 4 of Never Eat Alone 203-299 <br /> <br />
 
 **Class 5, 11/13: ** Networking Field Trip** ** <br />
--- During Class: N/A ... will go to a networking during the evening <br />
--- HW: Send follow-up emails to every contact you made & connect with them on Linkedin; Read Section 4 of Never Eat Alone 203-299 if you haven't already <br /> 
--- HW: Find 3 old contacts you'd like to revive  <br /> <br />
+-- Pre Class: None
+-- During Class: Free day to work on Entreprenuer Interview Assignment ... we'll all go to a networking during an evening during term <br />
+-- HW: Read Section 4 of Never Eat Alone 203-299 if you haven't already, Find 3 old contacts you'd like to revive  <br /> <br />
 
 **Class 6, 11/15: Keeping Relationships Fresh** <br />
 -- Pre Class: Read Section 4 of Never Eat Alone 203-299, PDF is linked above, Find 3 old contacts you'd like to revive  <br />
@@ -80,3 +80,7 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 **Class 8, 12/6: Advanced Emails** <br />
 -- Pre Class: Read part of 50 Proven Email Scripts, PDF is linked above<br />
 -- During Class: An activity to roleplay and get live feedback on difficult communication scenarios <br /> <br />
+
+### Evaluation
+* Students will be evaluated based on completion of all baseline challenges
+* Failure to complete challenges will result in a second chance to complete all asignments during winter break. If they are not completed then, student will be subject to expulsion from the school.
