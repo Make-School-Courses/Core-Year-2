@@ -33,9 +33,9 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 1. Create and finish a [term-2 partner project](https://github.com/Product-College-Labs/term-2-partner-project) to present at the December Open House.
 
 ### Stretch Challenges
-* Connect with the head of a meetup group and ask them who would be a good fit for you to connect with given your skills
-* Connect for coffee with an engineer at your dream company
-* Network your way to grab coffee with an exectutive (CTO, Engineering Lead, etc) at a company
+1. Connect with the head of a meetup group and ask them who would be a good fit for you to connect with given your skills
+1. Connect for coffee with an engineer at your dream company
+1. Network your way to grab coffee with an exectutive (CTO, Engineering Lead, etc) at a company
 
 ### Lessons
 **Class 1, 10/23: Advanced Networking 101** <br />
