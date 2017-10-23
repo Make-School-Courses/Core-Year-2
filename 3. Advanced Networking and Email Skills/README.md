@@ -66,18 +66,18 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 
 **Class 6, 11/15: Keeping Relationships Fresh** <br />
 -- Pre Class: Find three contacts that you'd like to revive <br />
--- During Class: <br />
+-- During Class: Understand what creates trust with contacts and strategies to revive connections, actually reach out to people <br />
 -- After Class: <br />
 -- HW: <br /> <br />
 
 **Class 7, 11/29: Flex Day** <br />
--- Pre Class: Read Part 1 of Never Eat Alone, PDF is linked above<br />
+-- Pre Class: Read part of 50 Proven Email Scripts, PDF is linked above<br />
 -- During Class: <br />
 -- After Class: <br />
 -- HW: <br /> <br />
 
 **Class 8, 12/6: Advanced Emails** <br />
--- Pre Class: Read 50 Proven Email Scripts, PDF is linked above<br />
+-- Pre Class: Read part of 50 Proven Email Scripts, PDF is linked above<br />
 -- During Class: <br />
 -- After Class: <br />
 -- HW: <br /> <br />
