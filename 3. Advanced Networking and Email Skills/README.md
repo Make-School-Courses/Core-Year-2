@@ -57,12 +57,12 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 **Class 4, 11/8: Finding Mentors in Industry** <br />
 -- Pre Class: Find 2-3 prospective mentors in your industry and/or role of interest; Read Section 3 of Never Eat Alone 161-190, PDF is linked above <br />
 -- During Class: Fiona lead discussion on Section 3 of NEA, Review Network theory and strategies to connect with specific individuals, pair program reach outs <br />
--- HW:  Read Section 4 of Never Eat Alone 203-299 <br /> <br />
+-- HW: Read Section 4 of Never Eat Alone 203-299 <br /> <br />
 
-**Class 5, 11/13: Networking Field Trip** <br />
--- During Class: N/A ... will go to a networking event all together <br />
+**Class 5, 11/13: ** Networking Field Trip** ** <br />
+-- During Class: N/A ... will go to a networking during the evening <br />
 -- HW: Send follow-up emails to every contact you made & connect with them on Linkedin; Read Section 4 of Never Eat Alone 203-299 if you haven't already <br /> 
--- HW:  Find 3 old contacts you'd like to revive  <br /> <br />
+-- HW: Find 3 old contacts you'd like to revive  <br /> <br />
 
 **Class 6, 11/15: Keeping Relationships Fresh** <br />
 -- Pre Class: Read Section 4 of Never Eat Alone 203-299, PDF is linked above, Find 3 old contacts you'd like to revive  <br />
@@ -72,11 +72,8 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 **Class 7, 11/29: Flex Day** <br />
 -- Pre Class: Read part of 50 Proven Email Scripts (TBD), PDF is linked above<br />
 -- During Class: TBD <br />
--- After Class: TBD <br />
 -- HW: Read part of 50 Proven Email Scripts (TBD), PDF is linked above <br /> <br />
 
 **Class 8, 12/6: Advanced Emails** <br />
 -- Pre Class: Read part of 50 Proven Email Scripts, PDF is linked above<br />
--- During Class: An activity to roleplay and get live feedback on difficult communication scenarios <br />
--- After Class: <br />
--- HW: <br /> <br />
+-- During Class: An activity to roleplay and get live feedback on difficult communication scenarios <br /> <br />
