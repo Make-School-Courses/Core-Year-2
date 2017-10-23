@@ -30,6 +30,7 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 * Get 10 business cards from an industry meet up of your choice
 * Create skits on proper and inproper behavior at networking events
 * Interview an entreprenuer and write a two page summary on what you learned
+* Create and finish a [term-2 partner project](https://github.com/Product-College-Labs/term-2-partner-project) to present at the December Open House.
 
 ### Stretch Challenges
 * Connect with the head of a meetup group and ask them who would be a good fit for you to connect with given your skills
@@ -45,7 +46,7 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 
 **Class 2, 10/30: Rejection Therapy** <br />
 -- Pre Class: Read Section 1 of Never Eat Alone, pg 1 - 61, PDF is linked above<br />
--- During Class: Discuss the minset sifts of an effective Mentee, practice rejection therapy <br />
+-- During Class: Discuss the minset sifts of an effective Mentee, practice rejection therapy, find an event to attend <br />
 -- HW: Read Section 2 of Never Eat Alone and Part 2, chapter 4 of How to Win Friends and Influence People - both PDFs are linked above  <br /> <br />
 
 **Class 3, 11/6: Networking Simulation** <br />
@@ -68,16 +69,16 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 -- Pre Class: Find three contacts that you'd like to revive <br />
 -- During Class: Understand what creates trust with contacts and strategies to revive connections, actually reach out to people <br />
 -- After Class: <br />
--- HW: <br /> <br />
+-- HW: Read part of 50 Proven Email Scripts, PDF is linked above <br /> <br />
 
 **Class 7, 11/29: Flex Day** <br />
 -- Pre Class: Read part of 50 Proven Email Scripts, PDF is linked above<br />
 -- During Class: <br />
 -- After Class: <br />
--- HW: <br /> <br />
+-- HW: Read part of 50 Proven Email Scripts, PDF is linked above <br /> <br />
 
 **Class 8, 12/6: Advanced Emails** <br />
 -- Pre Class: Read part of 50 Proven Email Scripts, PDF is linked above<br />
--- During Class: <br />
+-- During Class: An activitie to roleplay and get live feedback on difficult communicatio scenarios <br />
 -- After Class: <br />
 -- HW: <br /> <br />
