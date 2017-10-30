@@ -29,7 +29,8 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 1. Get coffee with 2-3 industry professionals
 1. Get 10 business cards from an industry meet up of your choice
 1. Create skits on proper and inproper behavior at networking events
-1. Entrepreneur Interview - you will interview a successful entreprenuer and prepare a ~2 page report on what factors made them successful. This is a great chance for you to practice your networking and learn career success skills while accomplishing the assignment.
+1. Do an act of "Rejection Therapy": something you and others could benefit from despite a (high) possibility of failure.
+1. Entrepreneur/CTO Interview - you will interview a successful entreprenuer or CTO and prepare a ~2 page report on what factors made them successful. This is a great chance for you to practice your networking and learn career success skills while accomplishing the assignment.
 1. Facilitate a book discussion on your assigned day. Facilitation involves three components, 1) thinking up 3-4 questions that: relate book content to participant's experiences, speak to the nuance and paradoxes of the book material, and dig into how to take the book's principles into practice; 2) Submit the questions to Dan at least and hour before class; 3) facilitate the 20 min discussion to ensure full participation, active engagement, and that diverse and contrasting views are voiced.
 
 ### Stretch Challenges
@@ -48,7 +49,7 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 **Class 2, 10/30: Rejection Therapy** <br />
 -- Pre Class: Read Section 1 of Never Eat Alone, pg 1 - 61, PDF is linked above<br />
 -- During Class: Tassos leads discussion on the minset sifts of an effective Mentee from NEA, practice rejection therapy, find an event to attend, pick mentors off of industry list <br />
--- HW: Read Section 2 of Never Eat Alone and Part 2 chapter 4 of How to Win Friends and Influence People - both PDFs are linked above  <br /> <br />
+-- HW: Read Section 2 of Never Eat Alone and Part 2 chapter 4 of How to Win Friends and Influence People - both PDFs are linked above + Get started on Interview and Entreprenuer/CTO assignement - see description in baseline challenges  <br /> <br />
 
 
 **Class 3, 11/6: Networking Simulation** <br />
@@ -75,7 +76,7 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 **Class 7, 11/29: Flex Day** <br />
 -- Pre Class: Read part of 50 Proven Email Scripts (TBD), PDF is linked above<br />
 -- During Class: TBD <br />
--- HW: Read part of 50 Proven Email Scripts (TBD), PDF is linked above <br /> <br />
+-- HW: Read part of 50 Proven Email Scripts (TBD), PDF is linked above, finish Interview and Entreprenuer/CTO Assignment <br /> <br />
 
 **Class 8, 12/6: Advanced Emails** <br />
 -- Pre Class: Read part of 50 Proven Email Scripts, PDF is linked above<br />
