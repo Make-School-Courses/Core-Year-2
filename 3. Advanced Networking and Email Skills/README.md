@@ -42,8 +42,7 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 **Class 1, 10/23: Advanced Networking 101** <br />
 -- Pre Class: Find the LinkedIns for 3 people you’d like to get coffee/advice from & write a draft template email inviting them to coffee <br />
 -- During Class: Declare your current approach to networking and mentorship, explain the distinct benefits of mentorship to both the mentor and mentee as well as the unique learning benefits of mentorship <br />
--- After Class: Read Section 1 of Never Eat Alone, pg 1 - 61, PDF is linked above <br />
--- HW: <br /> <br />
+-- HW: Read Section 1 of Never Eat Alone, pg 1 - 61, PDF is linked above <br /> <br />
 
 
 **Class 2, 10/30: Rejection Therapy** <br />
