@@ -59,7 +59,7 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 
 **Class 4, 11/8: Finding Mentors in Industry** <br />
 -- Pre Class: Find 2-3 prospective mentors in your industry and/or role of interest; Read Section 3 of Never Eat Alone 161-190, PDF is linked above <br />
--- During Class: Fiona lead discussion on Section 3 of NEA, Review Network theory and strategies to connect with specific individuals, pair program reach outs <br />
+-- During Class: Michael lead discussion on Section 3 of NEA, Review Network theory and strategies to connect with specific individuals, pair program reach outs <br />
 -- HW: Read Section 4 of Never Eat Alone 203-299 <br /> <br />
 
 **Class 5, 11/13: ** Networking Field Trip** ** <br />
