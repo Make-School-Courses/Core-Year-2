@@ -64,7 +64,7 @@ By the end, you’ll have the interpersonal skills to be comfortable and confide
 
 **Class 5, 11/13: ** Networking Field Trip** ** <br />
 -- Pre Class: None
--- During Class: Free day to work on Entreprenuer Interview Assignment ... we'll all go to a networking during an evening during term <br />
+-- During Class: Free day to work on Entreprenuer Interview Assignment ... we'll all go to a networking event one evening this term <br />
 -- HW: Read Section 4 of Never Eat Alone 203-299 if you haven't already, Find 3 old contacts you'd like to revive  <br /> <br />
 
 **Class 6, 11/15: Keeping Relationships Fresh** <br />
